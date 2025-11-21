@@ -1,7 +1,6 @@
-# more here !! kyLin.
+‎‧₊˚✧ for more ✧˚₊‧ NAHH 
 ![i](https://i.pinimg.com/1200x/ee/63/65/ee636515437dd6c106f49af5aa2e39f0.jpg)
 
-‎‧₊˚✧ for more ✧˚₊‧ NAHH 
 « ૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა . KyLin , ␥ any but they > she/he   ๋࣭ ⭑
 
 - russ 1# . alnst \ hsr area . ִ ࣪𖤐 ! AFK . w2i ᶻ 𝗓 𐰁
