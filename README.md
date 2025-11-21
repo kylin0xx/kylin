@@ -9,9 +9,6 @@
 ✄┈┈┈┈
 
 
-✄┈┈┈┈
-
-
 ʚ MEGA DNI ?? . wlw mlm mlw users ⭑ mercantile ⭑ 𝘕𝘦𝘦𝘥𝘴 𝘴𝘶𝘱𝘱𝘰𝘳𝘵 𝘵𝘰𝘰 𝘰𝘧𝘵𝘦𝘯 ⭑ noisy ɞ 
 
 ✄┈┈┈┈
