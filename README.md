@@ -16,5 +16,3 @@
 
 
 𝙃𝙊𝙏𝙀𝙇 𝙐𝙂𝙇𝙔 - 𝙨𝙝𝙪𝙩 𝙪𝙥 𝙢𝙮 𝙢𝙤𝙢`𝙨 𝙘𝙖𝙡𝙡𝙞𝙣𝙜 . 
-
-![i]([https://github.com/user-attachments/assets/b71170f7-5670-438d-803d-ee95337525d4](https://image2url.com/images/1763733043289-123dfdce-5aef-455a-a7fd-6c9382a76327.jpg))
