@@ -15,4 +15,4 @@
 ![i](https://i.pinimg.com/1200x/e9/30/66/e93066c648a634dd799c887a0d603710.jpg)
 
 
-𝙃𝙊𝙏𝙀𝙇 𝙐𝙂𝙇𝙔 - 𝙨𝙝𝙪𝙩 𝙪𝙥 𝙢𝙮 𝙢𝙤𝙢`𝙨 𝙘𝙖𝙡𝙡𝙞𝙣𝙜 . 
+i wanna know u talk about me i wanna know that u go bragging to ur friends come on and f!ck me like doubt me i wanna be the only one u wont forget
